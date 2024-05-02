@@ -19,9 +19,9 @@ I'm a student studying data analytics with a passion for leveraging data to solv
 
 ## Contact Me
 
-📧 Email: 
+📧 Email: tatjana@gmail.com
 
-🔗 LinkedIn: 
+🔗 LinkedIn: linkedin.com/Tatjana
 
 I'm always eager to connect with fellow enthusiasts, collaborate on projects, or just chat about data and beyond! Feel free to reach out if you have any questions or collaboration opportunities! 😊
 Looking forward to connecting with you!
